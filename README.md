@@ -1,1 +1,0 @@
-# kotabaruku.github.io
